@@ -7,5 +7,8 @@
 </p>
 <p align="center"> <img height="10" src="https://64.media.tumblr.com/e0deaaa27bb948a83a809ac5f60d6427/0d945a21c01edd11-8c/s1280x1920/502c5fd508db4e4c509032fbcef60c94bcd5f89f.pnj">
 
+<div align="center">
 
-[Pony Town Patreon](https://www.patreon.com/c/chronosrebirth/posts) ;; [Strawpage](wheehee-me.straw.page)
+  [Pony Town Patreon](https://www.patreon.com/c/chronosrebirth/posts) ;; [Strawpage](wheehee-me.straw.page)
+
+</div>
