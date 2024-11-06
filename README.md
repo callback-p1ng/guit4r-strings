@@ -9,6 +9,6 @@
 
 <div align="center">
 
-  [Pony Town Patreon](https://www.patreon.com/c/chronosrebirth/posts) ;; [Strawpage](wheehee-me.straw.page)
+  [Pony Town Patreon](https://www.patreon.com/c/chronosrebirth/posts) ;; [Strawpage](https://wheehee-me.straw.page)
 
 </div>
